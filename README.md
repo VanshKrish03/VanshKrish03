@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @VanshKrish03
 - 👀 I’m interested in Exploring Applications and Websites
-- 🌱 I’m currently learning HTML,ETHICA HACKING
+- 🌱 I’m currently learning HTML,ETHICAL HACKING
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Via my Socials
 
